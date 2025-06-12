@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm ARUNJUNAN JV, <br>a passionate and driven with a keen interest in Tech Development. <br>I'm always eager to learn and improve my skills, <br>and I'm excited to contribute to the tech community.
+I'm ARUNJUNAN J V <br>A passionate and driven with a keen interest in Tech Development. <br>I'm always eager to learn and improve my skills, and I'm excited to contribute to the tech community.
 
 
 ## 🌐 Socials:
